@@ -30,6 +30,36 @@ furniture maintenance and care
   Twice a year, apply a good quality emulsion wax with a soft cloth. Emulsion wax is clear and prevents fingerprints. Do not use aerosol-powered cleaners, polishes, waxes, abrasive cleaners, or oily polishes.
 
   For minor repair of water rings, stains, and scratches, rub the surface lightly in the direction of the wood grain using No. 000 steel wool. Apply a scratch-removing polish with a color and value that simulate the veneer. If the scratches are deep, please contact us. 
+  
+---
+
+This includes Herman Miller products finished with wood veneer or recut wood veneer, except the oiled Eames Lounge Chair and Ottoman with Rosewood, Oiled Walnut, or Oiled Santos Palisander veneer unless specifically noted.
+
+* Normal Cleaning 
+
+Dust regularly with a slightly damp, soft, lint-free cloth. Wipe dry with a dry, soft cloth in the directionof the wood grain.Spills should be immediately wiped up with a damp cloth.
+
+* Once a month
+
+  Clean the surface with a soft cloth dampened with a quality cleaner formulated for wood furniture. Wipe the surface in the direction of the wood grain to remove dirt and fingerprints. Wipe dry with a clean, dry cloth.
+
+* Twice a year
+
+  Apply a good quality furniture polish with a soft cloth. Do not use aerosol-powered cleaners or polishes. Also, do not use polishes containing waxes or abrasives, or polishes that are oil based.
+  
+* Stains
+
+Herman Miller veneers meet strict testing standards for resistance to wear, light, stains, water, and pressure. To reduce the risk of damage, take some precautions: Use coasters for glasses and mugs. If a glass top is added to the veneer surface, be sure it rests on felt pads. Don’t place a potted plant on a veneer surface unless it’s in a water-tight container or in a drip tray.Don’t let vinyl binders stay on a surface for very long. Use protective pads under equipment with “rubber” cushioning feet. Some chemical compounds used in the feet on office equipment, such as printers and monitor stands, may leave permanent stains or marks.
+
+* Minor repair of water rings, stains, and scratches
+
+Rub the surface lightly in the direction of the wood grain using No. 000 steel wool. Apply a scratch-removing polish with a color and value that simulate the veneer. If the scratches are deep, consult a professional furniture refinisher.
+
+* Other Damage
+
+Wood is susceptible to bruising and scratching from heavy office equipment, so we encourage a protective surface is placed underneath. Objects should be lifted instead of dragged across a surface. Protective pads should be used under items with a rough bottom, like pottery. Denting, caused by extreme pen pressure when writing, can also damage veneer. Use desk pads or some other protection where a lot of paperwork is done. Sunlight can damage veneer as well, so veneer surfaces should not be in direct sunlight. To help a surface age evenly, users can periodically move items on their desks so that the entire surface is exposed to an even amount of light over time. In addition to light, extremely high or low humidity is a damaging environmental factor. Herman Miller suggests maintaining a relative humidity of 35-65 percent.
+
+
 
 
 ## Plastic and Fiberglass
