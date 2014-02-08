@@ -102,3 +102,4 @@ This includes Herman Miller products finished with wood veneer or recut wood ven
   
   
 REF: http://www.modernconscience.com/store/page201.html
+REF: http://store.hermanmiller.com/Products/Eames-Molded-Plywood-Coffee-Table-Wood-Base
